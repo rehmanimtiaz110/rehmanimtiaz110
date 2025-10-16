@@ -16,8 +16,8 @@ Find me across the web. I'm always open to discussing tech, projects, and opport
 | **YouTube** | [▶️] Your-YouTube-Channel-Link-Here |
 | **Facebook** | [f] Your-Facebook-Profile-Link-Here |
 | **Instagram** | [📸] Your-Instagram-Profile-Link-Here |
-| **TikTok** | [🎵] Your-TikTok-Profile-Link-Here |
-| **WhatsApp** | [🟢] Your-WhatsApp-Link-Here (e.g., wa.me/92xxxxxxxxxx) |
+| **TikTok** | [🎵]https://www.tiktok.com/@rehmanimtiaz110 |
+| **WhatsApp** | [🟢] Your-WhatsApp-Link-Here (e.g., wa.me/923257030010) |
 
 ---
 
